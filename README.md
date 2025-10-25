@@ -1,0 +1,2 @@
+# TUGAS_TEKNIK_RISET_OPERAIONAL
+Tugas UTS &amp; UAS Analisis Distribusi (RAIHAN KAMALUDIN)
